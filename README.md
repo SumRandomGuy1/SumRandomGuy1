@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @SumRandomGuy1
+- 👀 I’m interested in Old Rec Room!
+- 🌱 I’m currently learning python.
+- 📫 How to reach me discord: SumRandomGuy#1041
